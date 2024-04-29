@@ -1,0 +1,1 @@
+# D-PDD-OE-23-Dell-PowerProtect-DD-Operate-2023-Exam-Questions
